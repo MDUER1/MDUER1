@@ -17,7 +17,7 @@ I work well independently but excel in collaborative environments.
 
 📌 Some projects are pinned below, so feel free to check them out!
 
-And if you'd like to connect - Reach out on LinkedIn or Gmail.
+And if you'd like to connect - reach out on LinkedIn or Gmail.
 
 I'm always looking for new opportunities🚀!
 
