@@ -22,8 +22,8 @@ And if you'd like to connect - reach out on LinkedIn or Gmail.
 I'm always looking for new opportunities🚀!
 
 Fun Facts:
-- ☕ I like tea.
 - 👨‍🍳 I enjoy cooking.
+- ☕ I like tea with milk.
 - 🏋️‍♂️ Lifting and running is my jam.
 - 🤠 Love spending time with friends and family!
 
