@@ -23,7 +23,7 @@ I'm always looking for new opportunities!
 
 Fun Facts:
 - I like tea.
-- I live in Denmark.
+- I enjoy cooking.
 - Lifting and running is my jam.
 - Love spending time with friends and family!
 
